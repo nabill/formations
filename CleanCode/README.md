@@ -12,3 +12,4 @@ Source : https://pro.academind.com/courses/1213378/lectures/27078451
 
 ![image](https://github.com/nabill/formations/assets/4624394/899e1a99-a345-4600-8923-5091e83d2f68)
 
+![image](https://github.com/nabill/formations/assets/4624394/da1da6f8-ee6b-47e3-b972-c46d0e5bf2d6)
