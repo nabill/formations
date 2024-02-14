@@ -34,3 +34,7 @@ Source : https://pro.academind.com/courses/1213378/lectures/27078451
 
 ![image](https://github.com/nabill/formations/assets/4624394/3255a616-14a8-4919-9ce4-7673b4736c46)
 
+![image](https://github.com/nabill/formations/assets/4624394/2e61b300-0ff2-443d-8a33-b3c701ff05de)
+
+
+
